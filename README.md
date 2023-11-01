@@ -1,3 +1,3 @@
-# Cinthia Villa
-Ejerecicio del segundo modulo
+# Cinthia Villa Toaza
+Ejercicio del segundo modulo
 cinthiavillat3196@gmail.com
